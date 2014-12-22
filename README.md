@@ -33,9 +33,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A memorial of suche princes, as since the tyme of king Richard the seconde, haue been vnfortunate in
+
 #####Body#####
-A memorial of suche princes, as since the tyme of king Richard the seconde, haue been vnfortunate in
+〈1… pages missing〉
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
